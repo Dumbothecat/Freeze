@@ -1,3 +1,5 @@
 # Freeze and the Immortal Stone
-<blockquote class="imgur-embed-pub" lang="en" data-id="ZOtc8lj"><a href="//imgur.com/ZOtc8lj">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
-<p> Character name: Freeze</p>
+Go to the file Freeze for info on Freeze
+Burn for info on Burn
+Zap for info on Zap
+Or Immortaly Zone to find out the Groundon-Kyogre legend among the ages.
